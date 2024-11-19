@@ -1,1 +1,1 @@
-# Mang-Sakura
+# Manga-Sakura
