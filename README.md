@@ -1,1 +1,1 @@
-# Manga-Sakura
+# Revistas-Sakura
